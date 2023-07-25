@@ -19,3 +19,7 @@ Collaborative nature and willingness to work as part of a team.
 ## Lecture:
 
 Overall Match with the job description from the lecture, but experience with particular tools are also required: ELT Tools, 
+
+## Link:
+
+https://www.stepstone.de/stellenangebote--Data-Analyst-f-m-x-Home-Office-or-Berlin-Germany-Tourlane-GmbH--9582712-inline.html?rltr=1_1_25_seorl_r_0_0_0_0_0_0
